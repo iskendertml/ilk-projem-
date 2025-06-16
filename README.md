@@ -1,1 +1,1 @@
-Güzel şeyler zaman alır zaman ise güzel olan her şeyi.
+Güzel şeyler zaman alır zaman ise güzel olan her şeyi..
